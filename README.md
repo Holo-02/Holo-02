@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and anime
 
 
-![](https://media.giphy.com/media/2UvR8rSEowSM8/source.gif)
+![](https://media.giphy.com/media/11lxCeKo6cHkJy/source.gif)
 
 <!---
 Holo-02/Holo-02 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
