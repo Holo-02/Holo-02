@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Holo
+- 👋 Welcome
 - 👀 I’m interested in coding and anime
 
 
