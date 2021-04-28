@@ -1,5 +1,5 @@
 - 👋 Welcome
-- 👀 I’m interested in coding and anime
+- 👀 heyo
 
 
 ![](https://tenor.com/view/holo-enos_n-spice-and-wolf-holo-the-wisewolf-anime-gif-14248698.gif)
